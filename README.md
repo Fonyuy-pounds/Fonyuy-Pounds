@@ -1,5 +1,5 @@
-# The Vision Never Changed.
+# THE VISION NEVER CHANGED.
 
-Faith. Growth. Purpose.
+   Faith. Growth. Purpose.
 
  
