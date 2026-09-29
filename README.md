@@ -1,4 +1,4 @@
-# THE VISION NEVER CHANGED.
+# THE VISION NEVER CHANGED............
 
    Faith. Growth. Purpose.
 
